@@ -1,16 +1,20 @@
-## Hi there 👋
+𝗣𝗟𝗔𝗬▶                             𝗩𝗛𝗦
+☆〈 ꒰ ❝ Welcome Hedgehog Hell! ❞ ꒱ 〉★
+ +_~ No we are not all hedgehogs
+   ﹒    HOST: META!//4TEEN  ﹕☆
+ㅤ         ﹟    he  ·  they ㅤ࣭ ㅤׂ   
+                   :   ᯓ nb _ aroace !  ﹐
+  𓂃 frequent fronters 𓂃
+! # SONIC.EXE // HE/THEY/IT
+  >_SHADOW !! # HE/THEY
+-< META >- + HE/THEY
 
-<!--
-**StupidMeta/StupidMeta** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+{~☾⋆⁺₊✧_☄︎₊˚⊹☆˚ ༘ *~}
+❝ I ᴅᴏ ɴᴏᴛ ғᴇᴇʟ ʟɪᴋᴇ ᴍʏsᴇʟғ
+I ᴛʜɪɴᴋ I ᴍɪɢʜᴛ ʙᴇ sᴏᴍᴇᴛʜɪɴɢ ᴇʟsᴇ
+Aɴᴅ I ᴅᴏɴ'ᴛ ᴛʜɪɴᴋ I ᴄᴀɴ ᴛᴇʟʟ ɪғ I ᴀᴍ ᴅʀᴇᴀᴍɪɴɢ
+Mʏ ᴍɪɴᴅ ɪs ᴘᴀᴄᴋᴇᴅ ᴀɴᴅ ʟᴇᴀᴠɪɴɢ
+I'ᴍ ғᴇᴇʟɪɴɢ ʟɪᴋᴇ ᴀɴ ᴀɴɪᴍᴀʟ ❞
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+𝟬𝟭:𝟯𝟱
+𝗦𝗘𝗣 .   𝟬𝟯  𝟭𝟵𝟴𝟱
