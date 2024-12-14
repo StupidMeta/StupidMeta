@@ -7,7 +7,7 @@
   𓂃 frequent fronters 𓂃                                              
 ! # SONIC.EXE // HE/THEY/IT                                     
   )_SHADOW !! # HE/THEY                                     
--< META > + HE/THEY                                                                                            
+-< KNUCKLES > + HE/HIM                                                                                            
                                                                               
 {~☾⋆⁺₊✧_♜₊˚⊹☆˚ ༘ *}                                                          
 ❝ I ᴅᴏ ɴᴏᴛ ғᴇᴇʟ ʟɪᴋᴇ ᴍʏsᴇʟғ                                                               
