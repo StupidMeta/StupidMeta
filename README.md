@@ -13,11 +13,17 @@
 
  LIKES/INT:
 
- SONIC ODDITIES/EXE, SONIC, HORRORBREW, FNF, ARTIST, POKEMON, FANS LIKE ACTUAL FANS, LISTENING TO PEOPLE TALK ABT INTEREST, ROBLOX
+
+ SONIC ODDITIES/EXE, SONIC, HORRORBREW, FNF, ARTIST, POKEMON, LISTENING TO PEOPLE TALK ABT INTEREST, ROBLOX 
+
+![pathetic](https://github.com/user-attachments/assets/cae7bf12-e00d-471a-be31-82eb40b2f4f3)![nightsky](https://github.com/user-attachments/assets/3b4ca5a1-30ca-428f-a4c5-6bae81b0d6e0)
+![heck](https://github.com/user-attachments/assets/0f958970-9c10-4f4d-93e0-3b696fbc1b1d)
+
+
 
 ![ankhbar](https://github.com/user-attachments/assets/215f0c01-8a57-48d9-8cd9-26b45ede61d5)
 
-DISLIKES/DNI:
+DISLIKES/DNI:   
 
 BASIC DNI (BIGOTRY, PROSHITTERS, PEDO, ECT), HOMESTUCK, COUNTRY HUMANS/BALLS, EASILY OFFENDED, JUST FLAT OUT RUDE, PURELY JUST ONLY SEX JOKES AS HUMOR
 
@@ -25,7 +31,9 @@ BASIC DNI (BIGOTRY, PROSHITTERS, PEDO, ECT), HOMESTUCK, COUNTRY HUMANS/BALLS, EA
 
 MORE INFO ON MY SOCIALS!!
 
-'-DRAW ON MY STRAWPAGE PLEASEEE <3-'
+'-DRAW ON MY STRAWPAGE PLEASEEE <3 -'  ![organ3](https://github.com/user-attachments/assets/bca3ff3b-f777-445d-b4c0-c221c280e5bc)
+
+
 
 ![tumblr_7b0f58a453b680889be7098438200c4c_f7b8035d_400](https://github.com/user-attachments/assets/9cc77a55-2e49-4612-8c6c-6e0b991a9821)
 
