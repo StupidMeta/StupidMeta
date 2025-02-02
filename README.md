@@ -16,9 +16,6 @@
 
  SONIC ODDITIES/EXE, SONIC, HORRORBREW, FNF, ARTIST, POKEMON, LISTENING TO PEOPLE TALK ABT INTEREST, ROBLOX 
 
-![pathetic](https://github.com/user-attachments/assets/cae7bf12-e00d-471a-be31-82eb40b2f4f3)![nightsky](https://github.com/user-attachments/assets/3b4ca5a1-30ca-428f-a4c5-6bae81b0d6e0)
-![heck](https://github.com/user-attachments/assets/0f958970-9c10-4f4d-93e0-3b696fbc1b1d)
-
 
 
 ![ankhbar](https://github.com/user-attachments/assets/215f0c01-8a57-48d9-8cd9-26b45ede61d5)
@@ -36,6 +33,9 @@ MORE INFO ON MY SOCIALS!!
 
 
 ![tumblr_7b0f58a453b680889be7098438200c4c_f7b8035d_400](https://github.com/user-attachments/assets/9cc77a55-2e49-4612-8c6c-6e0b991a9821)
+
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=i7zvishj9w8unt8txf0l0armq&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 
 ![heartbeat2](https://github.com/user-attachments/assets/eb7e5a4e-3954-4007-abe1-13ce3cee34e9)
